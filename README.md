@@ -6,5 +6,5 @@ Open source data set for quantitative and qualitative analysis of near-infrared 
 链接：https://pan.baidu.com/s/1xqoAM2UHqeOWkOO5Gp_a-A 
 提取码：b7z6
 # 欢迎加入学习交流群
-![微信图片_20220512190228](https://user-images.githubusercontent.com/56440282/168059520-9d58d2dd-f761-4261-9dab-252b02b181b0.jpg)
+![微信图片_20220522163336](https://user-images.githubusercontent.com/56440282/169686174-320f9cbc-3b5c-4737-9746-436ef2d91687.jpg)
 
